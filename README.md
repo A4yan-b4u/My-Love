@@ -1,8 +1,4 @@
-# tinawina
-Hi Guys!
+Hey My Love Phoebe 
 
-I made this little webpage after a friend showed me something similar my girlfriend had liked on instagram. 
-
-Feel free to use this code for your site or however y'all see fit! 
-
-URL: olie.wu.github.io/tinawina/
+I made this little webpage after seeing ur repost and also since i know you love coding i thought why not make
+something like this for you even though i am absolutely terrible at coding haha but still you deserve everythign my love <33 
